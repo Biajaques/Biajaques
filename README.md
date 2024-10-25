@@ -6,4 +6,5 @@
 - 😄 gosto de ir para a _chacára_ passar o final de semana com a minha familía
 - vou a _igreja_ todo sábado
  ![](https://tenor.com/fGaNGOO4aW5.gif)
+
 ![](https://tenor.com/fGaNGOO4aW5.gif)
