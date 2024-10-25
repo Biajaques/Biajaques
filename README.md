@@ -5,6 +5,5 @@
 - 💖 gosto de _passar meu tempo_ com amigos e familiares
 - 😄 gosto de ir para a _chacára_ passar o final de semana com a minha familía
 - vou a _igreja_ todo sábado
- ![](https://tenor.com/fGaNGOO4aW5.gif)
-
-![](https://tenor.com/fGaNGOO4aW5.gif)
+ ![](https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif)
+![](https://media.tenor.com/QEBvTb9FaBkAAAAi/ops.gif)
